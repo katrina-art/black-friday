@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+HammerAI(https://www.hammerai.com/)
+https://www.hammerai.com/
+50% OFF with code **BZAOH18**
+ 
